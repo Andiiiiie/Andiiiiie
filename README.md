@@ -31,5 +31,5 @@
 
 ## 📫 Contact Me
 
-- 📧 Email: [ton.email@example.com](mailto:andiejessica2020@gmail.com)
+- 📧 Email: [andiejessica2020@gmail.com](mailto:andiejessica2020@gmail.com)
 - 💼 [LinkedIn](https://www.linkedin.com/in/jessica-andie-andrianarivelo-2449482ba?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=ios_app)
